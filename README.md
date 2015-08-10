@@ -1,0 +1,1 @@
+# Seja bem vindo ao teste do warruda para instalacao to GIT no maldito RUINDOS
